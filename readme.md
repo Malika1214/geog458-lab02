@@ -2,7 +2,7 @@
 
 **Course:** GEOG 458  
 **Instructor:** Bo Zhao  
-**Student:** Malaika
+**Student:** Malika Ali
 
 ---
 
